@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for role **Software developer**
 
-- 📫 How to reach me **karmakarsourab886@gmail.com**
+- 📫 How to reach me **work.utkarshkumarsingh@gmail.com**
 
 - ⚡ Fun fact **I love new gadgets**
 
